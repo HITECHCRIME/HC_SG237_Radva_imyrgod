@@ -35,9 +35,11 @@ make sure to put on a(nother) smiling face
 brave face to the tragedy of the traces
 that are gone with every word he says
 
-relentless pressure 
+(...)
+
 i mean fuck this shit
-just fix me
+relentless pressure 
+just fix me next
 
 x x x 
 i mean fuck this shit
