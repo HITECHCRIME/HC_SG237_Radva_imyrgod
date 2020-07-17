@@ -33,7 +33,10 @@ you should fix me i've been broken for quite a while
 feeling done gets me down every single fucking day
 make sure to put on a smiling face
 brave face to the tragedy of the traces
-that are gone with every words he says
+that are gone with every word he says
+
+get you man out
+get you man out it's time to fill the void
 
 ```
 
