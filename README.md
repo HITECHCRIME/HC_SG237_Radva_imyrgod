@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# IMYRGOD x MOTHNODE_ Fix Me / Radva
 
 **Listen now:** 
 
@@ -22,7 +22,18 @@ Description.
 ## Lyrics
 
 ```
+get you man out
+get you man out it's time to fill the void
 
+say what you want still i'm gonna follow through to my own
+say what you say to make me spinning, it's a call to place the crown
+there's always time to make amends, trick's not in placing blame
+
+you should fix me i've been broken for quite a while
+feeling done gets me down every single fucking day
+make sure to put on a smiling face
+brave face to the tragedy of the traces
+that are gone with every words he says
 
 ```
 
