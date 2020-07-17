@@ -36,6 +36,8 @@ brave face to the tragedy of the traces
 that are gone with every word he says
 
 relentless pressure 
+i'm mean fuck this shit
+fuck this state 
 
 get you man out
 get you man out it's time to fill the void
