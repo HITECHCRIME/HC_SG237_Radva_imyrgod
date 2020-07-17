@@ -37,12 +37,15 @@ that are gone with every word he says
 
 relentless pressure 
 i mean fuck this shit
+just fix me
 
 x x x 
 i mean fuck this shit
+just fix me
 
 x x x 
 fuck this state 
+just fix me
 
 get you man out
 get you man out it's time to fill the void
