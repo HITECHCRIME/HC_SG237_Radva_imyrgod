@@ -31,9 +31,11 @@ there's always time to make amends, trick's not in placing blame
 
 you should fix me i've been broken for quite a while
 feeling done gets me down every single fucking day
-make sure to put on a smiling face
+make sure to put on a(nother) smiling face
 brave face to the tragedy of the traces
 that are gone with every word he says
+
+relentless pressure 
 
 get you man out
 get you man out it's time to fill the void
